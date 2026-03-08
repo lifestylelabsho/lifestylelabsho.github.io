@@ -1,10 +1,10 @@
-﻿---
-title: "일본구심  [40~60대] 픽셀아트 PIXELART PA2718W 화이트 180Hz FHD IPS 27형 모니터 무결점 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보"
+---
+title: '일본구심  [40~60대] 픽셀아트 PIXELART PA2718W 화이트 180Hz FHD IPS 27형 모니터 무결점 장점 및 추천 제품 구매 가이드 할인 최저 가격 상품평 후기 자주 묻는 질문 상세정보'
 date: 2024-05-20
-slug: "일본구심-픽셀아트-PIXELART-PA2718W-화이트-180Hz-FHD-IPS-27형-모니터-무결점"
-author: Moon
-categories: [shopping]
-tags: [Top10, shopping, 장점, 추천, 추천제품, 구매가이드, 할인, 최저가격, 상품평, 후기, 일본구심]
+slug: '일본구심-픽셀아트-PIXELART-PA2718W-화이트-180Hz-FHD-IPS-27형-모니터-무결점'
+author: 'Moon'
+categories: ['shopping']
+tags: ['Top10', 'shopping', '장점', '추천', '추천제품', '구매가이드', '할인', '최저가격', '상품평', '후기', '일본구심']
 ---
 
 <p data-nosnippet>💦 💦 💦 파트너스 활동을 통해 일정액의 수수료를 제공받습니다.</p>
